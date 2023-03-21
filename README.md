@@ -1,4 +1,4 @@
-<img src="https://raw.githubusercontent.com/fundaniel/fundaniel-profile/main/NIGHTMARE.jpeg">
+![NIGHTMARE](https://user-images.githubusercontent.com/128104633/226501504-e5a9302d-d20c-4c9b-ab5e-6afa656f59bb.jpeg)
 
 <!--
 **fundaniel/fundaniel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
