@@ -1,3 +1,9 @@
+## UNAUTHORIZED FUCKING THING. BLOW IT UP NOW!!!!
+
+- hey im kichi im 26 years old.
+- offtab a lot of the time you can whisper if you want
+- i like ffxiv love live twst etc
+
 ![NIGHTMARE](https://user-images.githubusercontent.com/128104633/226501504-e5a9302d-d20c-4c9b-ab5e-6afa656f59bb.jpeg)
 
 <!--
